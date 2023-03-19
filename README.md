@@ -7,5 +7,6 @@
 ![photo1679215706 (3)](https://user-images.githubusercontent.com/98329250/226167180-10efd44c-a31b-472b-9135-3faa24013101.jpeg)
 ![metrics](https://user-images.githubusercontent.com/98329250/226167645-8882f883-3249-433d-835e-10b8a16b5bfe.jpg)
 ![photo1679215778](https://user-images.githubusercontent.com/98329250/226167755-b341dfbd-90e4-472c-baf5-701f8de471ec.jpeg)
+![Lan gaming](https://user-images.githubusercontent.com/98329250/226168758-a752ba17-fe63-4c8d-b724-48675193ad55.jpg)
 
 
