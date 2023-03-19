@@ -5,8 +5,9 @@
 ![WIDGET QUIZ](https://user-images.githubusercontent.com/98329250/225967244-b0683ee5-11a9-4ced-9b6f-9e420c1f74e8.jpg)
 ![photo1679218770](https://user-images.githubusercontent.com/98329250/226167095-2f4dcb07-3e2f-4b4d-9473-9c57dd2765ae.jpeg)
 ![photo1679215706 (3)](https://user-images.githubusercontent.com/98329250/226167180-10efd44c-a31b-472b-9135-3faa24013101.jpeg)
-![metrics](https://user-images.githubusercontent.com/98329250/226167645-8882f883-3249-433d-835e-10b8a16b5bfe.jpg)
+![Metrics_A3](https://user-images.githubusercontent.com/98329250/226179377-26690279-e52d-44e2-86c6-5d93ae834de7.jpg)
 ![photo1679215778](https://user-images.githubusercontent.com/98329250/226167755-b341dfbd-90e4-472c-baf5-701f8de471ec.jpeg)
 ![Lan gaming](https://user-images.githubusercontent.com/98329250/226168758-a752ba17-fe63-4c8d-b724-48675193ad55.jpg)
+![photo1679231941](https://user-images.githubusercontent.com/98329250/226179001-21093eba-6d2b-432e-b39c-0486a6df0ea5.jpeg)
 
 
