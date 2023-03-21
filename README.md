@@ -10,5 +10,7 @@
 ![Lan gaming](https://user-images.githubusercontent.com/98329250/226168758-a752ba17-fe63-4c8d-b724-48675193ad55.jpg)
 ![photo1679231941](https://user-images.githubusercontent.com/98329250/226179001-21093eba-6d2b-432e-b39c-0486a6df0ea5.jpeg)
 ![photo1679240312](https://user-images.githubusercontent.com/98329250/226187255-b7aa7fc7-334e-438e-ad10-2adf70970606.jpeg)
+![photo1679418697](https://user-images.githubusercontent.com/98329250/226688669-4303b83e-41f0-43ce-8abb-32f660ecbe1f.jpeg)
+![photo1679418697 (1)](https://user-images.githubusercontent.com/98329250/226690968-247a97ac-2424-4c6f-9ec1-e5bd307a852f.jpeg)
 
 
